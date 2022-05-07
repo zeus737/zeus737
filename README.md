@@ -1,6 +1,7 @@
 # sobre mim
 - 👋 ola meu nome e@zeus737
--:+1:e
+- 
+-:+1:
 - 👀 
 - 🌱 
 <!---
