@@ -1,7 +1,6 @@
 # sobre mim
 - 👋 ola meu nome e@zeus737
-- 
--:+1:
+- :+1:meu email de contato é wellington.alves.costa@escola.pr.gov.br
 - 👀 
 - 🌱 
 <!---
